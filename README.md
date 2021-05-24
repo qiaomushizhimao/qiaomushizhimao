@@ -4,10 +4,3 @@
 ♥ IG ♥ 巴萨 ♥ 巧克力 ♥ 抹茶 ♥ 七海建人 ♥ 摇滚 ♥ 德云社 ♥  
 
 初次见面，请多关照！
-
-
-
-<!---
-qiaomushizhimao/qiaomushizhimao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
